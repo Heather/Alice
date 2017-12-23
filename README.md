@@ -3,4 +3,4 @@
 Requesting administrative privileges...
 ```
 
-![](http://i837.photobucket.com/albums/zz297/itsumoassassin/Renders/9c2d05a89b6db055348503be2ce9e5ab.png)
+![](https://en.touhouwiki.net/images/thumb/a/ae/Th075alice01.png/200px-Th075alice01.png)
